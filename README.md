@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **kishansingh9006866@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** DevTinder
+- 🔭 **I’m currently working in:** GHUMIO PRIVATE LIMITED (Traveller and hoster startup company)
 - 🌱 **I’m currently learning:** Depth into FSD
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me directly**:**9569324690**
